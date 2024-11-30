@@ -1,7 +1,7 @@
 ## Jan Paweł II
 
 
-![Jan Paweł II](https://pl.wikipedia.org/wiki/Plik:Ritratto_di_papa_Giovanni_Paolo_II_(1984_%E2%80%93_edited).jpg)
+![Jan Paweł II](https://przemysl.pl/download//3651/jan_pawel_ii.jpeg)
 
 Papież Jan Paweł II, urodzony jako Karol Józef Wojtyła, był 264. papieżem Kościoła katolickiego, pełniąc tę funkcję od 1978 roku aż do swojej śmierci w 2005 roku. Był pierwszym papieżem niepochodzącym z Włoch od 455 lat oraz pierwszym papieżem polskim w historii. Jego pontyfikat trwał 27 lat, co czyni go jednym z najdłuższych w historii. Znany był z głębokiej wiary, zaangażowania na rzecz praw człowieka oraz ogromnego wpływu na wydarzenia światowe.
 
